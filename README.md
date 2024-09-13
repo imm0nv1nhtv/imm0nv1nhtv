@@ -4,7 +4,7 @@ My name is imm0nv1nhtv
 
 **Known as iamvinh123**
 
-My discord is c0d3name_1amv1nh123
+My discord is imm0nv1nhtv (Friend request for mutuals only)
 
 <picture>
   <source

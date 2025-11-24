@@ -1,10 +1,10 @@
 Hiya!
 
-My name is imm0nv1nhtv
+My name is NepNep7601
 
-**Known as iamvinh123**
+**I'm also known as imm0nv1nhtv, iamvinh123 and NepuFromRTL**
 
-My discord is imm0nv1nhtv (Friend request for mutuals only)
+Discord: nepnep7601 (FRQs is enabled btw!)
 
 <picture>
   <source
